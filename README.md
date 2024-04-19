@@ -1,4 +1,4 @@
-- 👋 Hola, doy @fofoigorts
+- 👋 Hola, soy @fofoigorts
 - 👀 Me gusta la musica de Taylor Swift
 - 🌱 Me interesa la fotografia y el arte
 - 💞️ Fan de las peliculas de romance
